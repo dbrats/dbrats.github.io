@@ -30,16 +30,15 @@ These are things we provide, so if you want something else, please let us know o
 * Energy drinks
 
 ### Alcoholic
-* Red wine - Apothic Red? (USA)
-* White wine - Ultimate Provence Rose (France)
-* Umeshu (Japanese Plum Wine) - Ankorono
-* Sparkling Umeshu - Choya
-* Rum - Flor de Caña Gran Reserva 7 Years (Nicaragua)
-* Whisky - Lagavulin 16 (Scotland)
-* Whisky - 
-* Various beer
+* Red wine
+* Rose wine
+* Whisky / Rum 
+* Various types of beer
+* Umeshu
 
-## Recommended nearby hotel
+## Recommended nearby hotel (for those who wants a night in Notodden)
+* Brattrein Hotell
+There are also another hotel and AirBnB available
 
 ## Other things to do in town
 Notodden is small but super charming — especially on a Sunday when things slow down. Here are some fun things you can do:
