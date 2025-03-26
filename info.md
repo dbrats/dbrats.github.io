@@ -11,6 +11,11 @@ Time: 15:00 -> ~23:00/late
 
 [Tinnegrend 322, 3683 Notodden](https://maps.app.goo.gl/WMbLSZ7WuiguDTc79)
 
+## RSVP
+
+Please read the rest of the info before you RSVP:
+[RSVP here](https://tally.so/r/n94NJ4)
+
 ## Provided Nutrition
 
 These are things we provide, so if you want something else, please let us know or bring some for yourself.
