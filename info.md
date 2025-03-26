@@ -9,8 +9,7 @@ Time: 15:00 -> ~23:00/late
 
 ## Location
 
-Tinnegrend 322
-3683 Notodden
+[Tinnegrend 322, 3683 Notodden](https://maps.app.goo.gl/WMbLSZ7WuiguDTc79)
 
 ## Provided Nutrition
 
@@ -37,8 +36,8 @@ These are things we provide, so if you want something else, please let us know o
 * Umeshu
 
 ## Recommended nearby hotel (for those who wants a night in Notodden)
-* Brattrein Hotell
-There are also another hotel and AirBnB available
+* [Brattrein Hotell](https://picassoonline.techotel.dk/no/unike-hoteller/brattrein-hotell/booking/rom/)
+* There is also another hotel and AirBnB available in the town
 
 ## Other things to do in town
 Notodden is small but super charming — especially on a Sunday when things slow down. Here are some fun things you can do:
