@@ -18,7 +18,7 @@ Please read the rest of the info before you RSVP:
 
 ## Wishlist
 
-Sorry! Link coming soon! <3
+Link to wishlist coming soon! <3
 
 ## Provided Nutrition
 
