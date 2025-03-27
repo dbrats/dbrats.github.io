@@ -1,5 +1,4 @@
 ---
-layout: default
 title: Info
 ---
 
@@ -18,7 +17,7 @@ Please read the rest of the info before you RSVP:
 
 ## Wishlist
 
-Link to wishlist coming soon! <3
+[This is our wishlist 💕](https://www.onskelister.no/liste?id=goc68uXtl7Ti6cJTPioE)
 
 ## Provided Nutrition
 
