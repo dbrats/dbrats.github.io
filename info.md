@@ -1,5 +1,5 @@
 ---
-title: Info
+title: Wedding Info
 ---
 
 # Wedding Info for Saturday 2025-06-21
