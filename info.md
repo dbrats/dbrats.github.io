@@ -25,7 +25,7 @@ These are things we provide, so if you want something else, please let us know o
 
 ### Food
 * Sushi
-* Some noodle dishes, fried chicken, etc.
+* Some noodle dishes, fried shrimps, springrolls, etc.
 * Cake
 
 ### Drinks
